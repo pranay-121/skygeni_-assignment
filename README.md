@@ -1,1 +1,0 @@
-# skygeni_-assignment
